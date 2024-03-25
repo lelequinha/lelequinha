@@ -1,4 +1,4 @@
-# [lelequinha] <img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F661044051526583677%2F&psig=AOvVaw31qN4Hop6v95J4yRJ0yDP4&ust=1711488336656000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKD-m4StkIUDFQAAAAAdAAAAABAd" width="30px">
+# [lelequinha] <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Mario_Hello_Big.gif" width="30px">
 
 
 Eu sou <strong>lelequinha</strong>, <strong>sou simpatica e amigável</strong> 👨🏻‍💻 
