@@ -1,4 +1,4 @@
-# [lelequinha] <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Mario_Hello_Big.gif" width="30px">
+# [lelequinha] <img src="https://tenor.com/pt-BR/view/gattobus-runnercat-gif-19799972" width="30px">
 
 
 Eu sou <strong>lelequinha</strong>, <strong>sou simpatica e amigável</strong> 👨🏻‍💻 
