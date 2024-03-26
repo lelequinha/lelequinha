@@ -1,4 +1,4 @@
-# [lelequinha] <img src="https://tenor.com/pt-BR/view/gattobus-runnercat-gif-19799972" width="30px">
+# [lelequinha] <img src="https://media.tenor.com/x7XF95ZCeGgAAAAi/gattobus-runnercat.gif" width="30px">
 
 
 Eu sou <strong>lelequinha</strong>, <strong>sou simpatica e amigável</strong> 👨🏻‍💻 
