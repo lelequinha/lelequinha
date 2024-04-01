@@ -1,4 +1,4 @@
-#lelequinha <img src="#lelequinha <img src="https://tenor.com/pt-BR/view/pochita-csm-chainsaw-man-boppingpochita-gif-21659314" width="50px">
+#lelequinha <img src="#lelequinha <img src="https://media.tenor.com/tSzrYIDFm0gAAAAi/pochita-csm.gif" width="50px">
 
 
 Eu sou <strong>lelequinha</strong>, <strong>sou simpatica e amigável</strong> 👨🏻‍💻 
