@@ -1,6 +1,5 @@
 #lelequinha <img src="#lelequinha <img src="https://media.tenor.com/tSzrYIDFm0gAAAAi/pochita-csm.gif" width="50px">
 
-
 Eu sou <strong>lelequinha</strong>, <strong>sou simpatica e amigável</strong> 👨🏻‍💻 
 
 - 🚀 Atualmente estou aprendendo: <strong>Javascript e Phyton</strong> 
